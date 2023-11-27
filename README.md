@@ -1,7 +1,7 @@
 ### Hi there 👋
 
+![banner](https://github.com/NaniCocio/NaniCocio/assets/94750061/c3ec55e9-3a12-4bee-9f71-2a947dcbf696)
 
-![banner-2](https://github.com/NaniCocio/NaniCocio/assets/94750061/33d10ef3-057e-4da2-a1fd-049efc2cb298)
 
 
 
