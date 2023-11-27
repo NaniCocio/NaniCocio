@@ -1,5 +1,9 @@
 ### Hi there 👋
 
+
+https://github.com/NaniCocio/NaniCocio/assets/94750061/5f03ff47-3a16-4f0c-b3ae-9523c7ade228
+
+
 <!--
 **NaniCocio/NaniCocio** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
